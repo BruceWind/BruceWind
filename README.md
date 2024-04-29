@@ -1,7 +1,7 @@
 ![typingkeyboard](https://github.com/BruceWind/BruceWind/assets/6711309/dd4f466b-8251-4ad6-b215-f9e37e7e0cff)
 
 
-Working smarter, not harder? 
+Working harder, not smarter? 
 ![dealwithit](https://github.com/BruceWind/BruceWind/assets/6711309/290a4e28-540b-4c98-b33c-ad635b8bc6fc)
 
 
